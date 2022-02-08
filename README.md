@@ -1,4 +1,5 @@
 ## Oiii eu sou a Karen ☺️
+Seja bem-vindo(a) ao meu GitHub! 😁
 
 
 
